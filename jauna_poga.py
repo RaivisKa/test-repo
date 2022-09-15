@@ -1,0 +1,2 @@
+ieraksts
+jauna rinda yoo
